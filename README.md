@@ -8,24 +8,23 @@ I'm pretty jazzed about this semester.  To be honest, I'm not usually over-excit
 
 I get really animated when someone lets me talk about statistics and my eyes go big and crazy.
 
-When I'm working I completely lose track of time.  I missed my first date with my wife because I was doing my physics homework.  Hand to god.  She is very forgiving.
+When I'm working I completely lose track of time.  I missed my first date with my wife because I was doing my physics homework.  Physics homework.  Hand to god.  She is very forgiving.
 
 I have two kids.  When I come home they run up and give me a hug.  Then they ignore me.  But for that one second... it's pretty cool.
 
 
 I am not a poet.  I once wrote this pair of haiku:
 
-Fireflies absently
+- Fireflies absently
 
-Dance across the twilit road -
+  Dance across the twilit road -
 
-Neon splash on glass
+  Neon splash on glass
 
+- Title: Starry Night
 
-Title: Starry Night
+  Media: Insect on glass
 
-Media: Insect on glass
-
-Artist: Volkswagen
+  Artist: Volkswagen
 
 But that's all I had in me.  That little bit and then it was done.
